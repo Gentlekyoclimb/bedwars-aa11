@@ -1,4 +1,4 @@
-
+Experience bedwars like never before with bedwars smart Scripts, the #1 Script. Includes auto-collect and speed for unbeatable performance.
 
 
 
